@@ -1,0 +1,3 @@
+# sammie..
+hi i'm Faisalyn Samra C. Mamoribid, living at Sta. Cruz st. Barangay Leon Garcia, Agdao, Davao City, im 15 years old and coming 16 in April 19, 2015. i have graduated in Leon Garcia Sr. National High School s.y 2014-2015. i have decided to continue my studies in University of Southeastern Philippines. because I've heard that this school is a standard school and have a good teachers. i have 2 siblings whose studying in my almamater. my father's name is Faisal Mamoribid(deceased) and my mother's name is Rocaya mamoribid. that all.  
+uhm be serious in college life. because we are old enough to understand things and know what to do on things.
